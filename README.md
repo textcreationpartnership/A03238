@@ -35,8 +35,16 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A marriage triumphe Solemnized in an epithalamium, in memorie of the happie nuptials betwixt the hig
+
+1. To the most Excellent, and most admired Princesse the Ladie ELIZABETH.
+
 #####Body#####
+
+1. An Epithilamion, OR NVPTIALL SONG,
+
+    _ The Epithilamion.
+
+    _ A Nuptiall Hymne.
 
 **Types of content**
 
